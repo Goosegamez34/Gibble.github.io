@@ -1,4 +1,4 @@
-# JimmyQrg.github.io
+# https://currymunchery67.github.io/WatsonSuhas
 ## Website
 
 If you ever get bored, try the settings. Although it's IMPOSSIBLE to get bored
